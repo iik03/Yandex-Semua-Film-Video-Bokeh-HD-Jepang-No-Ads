@@ -6,7 +6,8 @@ Senggang dengan waktu yang membosankan? Cobain deh nonton Yandex Semua film full
 
 🔴 ➤► LINK DOWNLOAD ✅👉 https://terabox.com/s/1I7_gc1y-_3TALA-7QJ4cWA
 
-https://github.com/iik03/example/blob/87f482ecd7f1756376e304e8e03c1fb77fb53307/Apa%20Itu%20Yandex%20Ru.jpg
+![bokeh](https://github.com/iik03/example/blob/bae954985c1dfcc055dcaea01f5cd0f21154744a/bokeh.jpg)
+
 
 Di tengah persaingan ketat platform streaming, Yandex Semua Film muncul sebagai salah satu pilihan yang menarik bagi penonton di seluruh dunia. Bukan hanya menawarkan koleksi film yang luas, tetapi juga berbagai fitur yang membuat pengalaman menonton menjadi lebih menyenangkan. Dalam artikel ini, kita akan membahas empat kelebihan utama Yandex Semua Film yang menjadikannya unggul dibandingkan platform lain.
 1. Koleksi Film yang Beragam dan Berkualitas
